@@ -1,1 +1,1 @@
-![alt text](http://natxetee.github.io/gure.webp)
+![Gure Sheepdog Trial](http://natxetee.github.io/gure.webp)
